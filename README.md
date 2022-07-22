@@ -1,10 +1,12 @@
-⌜             ⌝
-    ➣ neo
-⌞             ⌟
+⌇ neo            
 
 ⌇ any pronouns 
  
-【 int in pt? 】 sure.
+⌇【 int in pt? 】 sure.
+
+⌇ 
+
+
 
 
 
