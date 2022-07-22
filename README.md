@@ -4,7 +4,9 @@
  
 ⌇【 int in pt? 】 sure.
 
-⌇ onions. yes
+⌇ i dont friend someone easily 
+
+⌇ the end. quite a nice story ey? /j
 
 
 
